@@ -1,1 +1,1 @@
-Boplats informational site
+Praktika-studentov informational site
